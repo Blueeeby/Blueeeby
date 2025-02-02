@@ -28,7 +28,13 @@
 <p align="center">
 
 <p align="center">
+<a href="https://blueebyyy.straw.page">My Straw Page! <3
+<p align="center">
+
+<p align="center">
 <img src="https://i.ibb.co/4dc72N5/Untitled2050-20230729233013.png">
+
+
 
 
 
