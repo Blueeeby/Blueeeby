@@ -18,7 +18,7 @@
 ★. Check My Straw page for my socials and more abt me <img src="https://files.catbox.moe/frxgym.gif">
 <p align="center">
 <p align="center">
-<a href="[https://blueebyyy.straw.page](https://blueeebyy.straw.page/)">My Straw Page! <3
+<a href="https://blueeebyy.straw.page/">My Straw Page! <3
 <p align="center">
 <p align="center">
 <img src="https://64.media.tumblr.com/54b1396c9702e82b3fec1c401abe9029/9d5d7ed754c50d00-87/s500x750/c9a63a7d97cb5bf97f6996413bdab52bbcb7c589.pnj">
