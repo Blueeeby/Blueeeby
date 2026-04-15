@@ -12,7 +12,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![<3 cool ppl](https://komarev.com/ghpvc/?username=Blueeeby&color=dc143c)  ⠀✧ ⠀ <img src="https://64.media.tumblr.com/e52cebebeb55b1c856c60f4a10333826/eb2d649324244113-9b/s100x200/3dca233f26d2dfc7031f4c286343779ffe0c5576.pnj">
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ por favor, has whisper para interactuar conmigo si eres de la comunidad hispanohablante del fandon de sonic en la zona de pony town, me desagrada algunas personas de allí, prefiero no hablar publicamente. 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ por favor, has whisper para interactuar conmigo si eres de la comunidad hispanohablante del fandon de sonic en la zona de pony town, me desagrada algunas personas de allí, prefiero no hablar publicamente. 
 
 
 
